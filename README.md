@@ -1,3 +1,3 @@
-# IAMTHEMACHINEE33
+# Rijan Maharjan
 ## I am a dev
 ### Hello
